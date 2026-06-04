@@ -1,4 +1,4 @@
-#  
+#  all star tower defense rare Script is the best all star tower defense Script, featuring anti-ban and one-hit kill. Safe and powerful for all your
 
 
 
